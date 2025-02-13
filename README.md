@@ -1,5 +1,5 @@
 # faces-n-bgs
-Faces and Backgrounds
+\"GOOFY\" Faces and Backgrounds
 
 This is where I put all my backgrounds and icons here.
 
