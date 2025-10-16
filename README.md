@@ -3,4 +3,4 @@
 
 This is where I put all my backgrounds and icons here.
 
-You can use those images without credit for your malwares, wallpapers, and other creations.
+These images are public domain which means you can use those images without credit for your malwares, wallpapers, and other creations.
